@@ -5,9 +5,24 @@ by Meg Jay
 
 To get the most out of the book, I recommend to [buy it](https://www.amazon.de/Defining-Decade-Meg-Jay/dp/1782114920/ref=sr_1_1?keywords=the+defining+decade&qid=1649273605&sprefix=the+defi%2Caps%2C149&sr=8-1) and read through it by yourself.
 
+---
+
+## Key Learnings
+
 "In my experience, these are the most uncertain and some of the most difficult years of life." (Page 42)
 
 "High school and our twenties are not only the time when we have our most self-defining experiences, study after study shows they are also the time when we have our most self-defining memories. Adolescence is a time of many firsts, including our first attempt to form life stories." (Page 107)
+
+- increase you identity capital in your twenties
+- combine your confusion about life with making commitments and exploring the world to build a strong Identity
+- People we know the least will be the most transformative. People we do know well might hold us back in some situations.
+- Don't do things that you think you should be doing. Do the things that feel authentic.
+- And stop worrying about how life was supposed to look.
+- The most important decision everyone makes in life is who we marry.
+- Being In Like: being alike in ways that matter and genuinely liking who the other person is
+- What do I want: Find out your own Deal Breakers, but you should ask yourself "Who Am I" to figure out your personality and choose a partner according to it.
+
+---
 
 ## Work
 
@@ -64,18 +79,18 @@ To get the most out of the book, I recommend to [buy it](https://www.amazon.de/D
 
 ## Love
 
-# An Upmarket Conversation
+### An Upmarket Conversation
 
 - "The most important decision any of us make is who we marry." - David Brooks, political and cultural commentator\
   -> happiness depends more on whom you marry than which college you attend\
   -> since by choosing your partner and the one you will marry, you choose all adult things like money, work, lifestyle, family, health, leisure, retirement (see Page 72)
 
-# Picking Your Family
+### Picking Your Family
 
 - "Other things may change us, but we start and end with family." - Anthony Brandt, writer
 - "greatest twentysomething opportunities: picking and creating our families." (Page 88)
 
-# The Cohabitation Effect
+### The Cohabitation Effect
 
 - "Living together is a good test for marriage. This is a common misperception." (Page 90)
 - Cohabitation Effect: Couples who live together before marriage (those that live together before being clearly and mutually committed to each other) are statistically less satisfied with their marriage and more likely to get a divorce than couples who didn't live together before marriage. (see Page 91)
@@ -83,9 +98,9 @@ To get the most out of the book, I recommend to [buy it](https://www.amazon.de/D
   -> cohabitation comes with setup and switching costs = basic ingredients of lock-in
 - learning: get clear on each person's commitment level before you move in (see Page 99)
 
-# On Dating down
+### On Dating down
 
-# Being in Like
+### Being in Like
 
 - "People love those who are like themselves." - Aristotle, philosopher
 - "What counts in making a happy marriage is not so much how compatible you are, but how you deal with incompatibility." - Leo Tolstoy, writer
